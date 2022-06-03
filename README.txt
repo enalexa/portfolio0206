@@ -1,7 +1,6 @@
 Hello :) :) :)
-
 today will be a nice day
-text from my portfolio0206
+03.06 text from my portfolio0206 :)
 third line
 another one ???
 alabala
